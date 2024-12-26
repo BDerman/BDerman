@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Derman BAL</h1>
+<h1 align="center">Hi 👋, I'm Derman ( Therman ) BAL</h1>
 <h3 align="center">I Am a Software Student Who Has Been Working With Software For a Long Time.</h3>
 
 - 💬 Ask Me About **Web Development - Desktop Applıcatıon Development**
