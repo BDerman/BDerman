@@ -9,9 +9,9 @@
 
 - 💬 Bana **Web Geliştirme - Masaüstü Uygulama Geliştirme** Hakkında Sorular Sorun
 
-- 📫 Bana Nasıl Ulaşabilirsiniz **x0rdinaryusum@Gmail.com**
+- 📫 Bana Nasıl Ulaşabilirsiniz :  **x0rdinaryusum@Gmail.com**
 
-- 📄 Deneyimlerimi Öğrenin : **Linkedin : BDerman**
+- 📄 Deneyimlerimi Öğrenin :  **Linkedin - BDerman**
 
 <h3 align="left">Benimle iletişime geçin:</h3>
 <p align="left">
