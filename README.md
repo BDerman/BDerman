@@ -11,7 +11,7 @@
 
 - 📫 Bana Nasıl Ulaşabilirsiniz **x0rdinaryusum@Gmail.com**
 
-- 📄 Deneyimlerimi Öğrenin [www.Linkedin.com/in/BDerman/](www.Linkedin.com/in/BDerman/)
+- 📄 Deneyimlerimi Öğrenin : **Linkedin : BDerman**
 
 <h3 align="left">Benimle iletişime geçin:</h3>
 <p align="left">
